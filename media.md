@@ -6,7 +6,7 @@ permalink: /media/
 
 ## 小红书
 
-[一天一个买房避坑小知识](https://www.xiaohongshu.com/discovery/item/637c576a000000000e03b428)
+🔥 [一天一个买房避坑小知识](https://www.xiaohongshu.com/discovery/item/637c576a000000000e03b428)
 
 [东湖高新区交投华园隐瞒业主恶意降价！](https://www.xiaohongshu.com/discovery/item/63601487000000000901370e)
 
@@ -20,6 +20,8 @@ permalink: /media/
 
 ## 抖音
 
+🔥🔥🔥 [真给政府丢脸](https://www.douyin.com/video/7168333168884419848)
+
 [交投华园的入户大门实景图，荣获武汉市楼盘规划设计奖、户型设计奖](https://www.douyin.com/video/7169114220250860838)
 
 [好房推荐 武汉交投华园](https://www.douyin.com/video/7169203637196016932)
@@ -30,13 +32,13 @@ permalink: /media/
 
 [@湖北省交投集团 #网红楼盘](https://www.douyin.com/video/7169362345939045645)
 
-[一天一个买房避坑小知识#交投华园 #湖北交投](https://www.douyin.com/video/7168700042038086952)
+🔥🔥 [一天一个买房避坑小知识#交投华园 #湖北交投](https://www.douyin.com/video/7168700042038086952)
 
 [湖！北！交！投！交！投！华！园！史 上 最 强 卖 家 秀 和 买 家 秀 ！买 高 品 质 房 建 还 建 房，虚 假 宣 传，坑 了 多 少 大 学 生](https://www.douyin.com/video/7168362989739953448)
 
-[一天一个买房避坑小知识多么痛的领悟#交投华园](https://www.douyin.com/video/7169898827766353204)
+🔥🔥 [一天一个买房避坑小知识多么痛的领悟#交投华园](https://www.douyin.com/video/7169898827766353204)
 
-[注意‼️注意‼️避大坑#交投华园](https://www.douyin.com/video/7169126224839707938)
+🔥 [注意‼️注意‼️避大坑#交投华园](https://www.douyin.com/video/7169126224839707938)
 
 [一天一个买房避坑小知识#交投华园 #湖北交投](https://www.douyin.com/video/7169076354737114408)
 
@@ -64,7 +66,7 @@ permalink: /media/
 
 [#网红楼盘 #武汉买房 #现场实拍 #交投华园 交投华园 国企准现房](https://www.douyin.com/video/7169398734835567906)
 
-[#武汉买房 #好房推荐 #网红楼盘 #现场实拍 #交投华园 武汉交投华园](https://www.douyin.com/video/7169409741716770100)
+🔥 [#武汉买房 #好房推荐 #网红楼盘 #现场实拍 #交投华园 武汉交投华园](https://www.douyin.com/video/7169409741716770100)
 
 [呵呵呵，以后大家买房买车买米买油买菜，是不是都得带纸笔？信任在哪里？基本职业道德又在哪里？你是怕了吗？泱泱guo企，竟会如此不堪](https://www.douyin.com/note/7169073982514302245)
 
@@ -72,7 +74,7 @@ permalink: /media/
 
 [交投华园甩锅声明](https://www.douyin.com/video/7170151652400401677)
 
-[无良国企#交投华园](https://www.douyin.com/video/7166084574085254440)
+🔥 [无良国企#交投华园](https://www.douyin.com/video/7166084574085254440)
 
 [国企大牌，品质生活 #交投华园 #武汉 #传递正能量](https://www.douyin.com/video/7169452361616837925)
 
@@ -80,7 +82,7 @@ permalink: /media/
 
 [时代红利，流量密码，网红神盘。#交投华园 #生活不会辜负每一个努力的人](https://www.douyin.com/video/7169439712443206926)
 
-[时代的一粒沙，落到个人头上就是一辈子](https://www.douyin.com/video/7170687937124814093)
+🔥 [时代的一粒沙，落到个人头上就是一辈子](https://www.douyin.com/video/7170687937124814093)
 
 [对很多人来说，仅仅是活着，已然需要拼尽全力](https://www.douyin.com/video/7170692627992497439)
 
@@ -108,6 +110,6 @@ permalink: /media/
 
 ## 微信公众号
 
-[「讲述」人活着，究竟是为了什么？希望我们的下一代，不为房子而活！](https://mp.weixin.qq.com/s?__biz=MzIzMDI4MjUwNQ==&mid=2651210106&idx=1&sn=72d200dececdfe0141fff31ed577646c&chksm=f347251cc430ac0a9dca4c5d00ddf4b8fccb16a489de757674db51937048ad9ccd89ec409edb)
+🔥🔥 [「讲述」人活着，究竟是为了什么？希望我们的下一代，不为房子而活！](https://mp.weixin.qq.com/s?__biz=MzIzMDI4MjUwNQ==&mid=2651210106&idx=1&sn=72d200dececdfe0141fff31ed577646c&chksm=f347251cc430ac0a9dca4c5d00ddf4b8fccb16a489de757674db51937048ad9ccd89ec409edb)
 
-[我承认，这次买房，我是大冤种！](https://mp.weixin.qq.com/s?__biz=MzIzMDI4MjUwNQ==&mid=2651210140&idx=1&sn=b366cc940cebafccff5a9ca3b6c4178e&chksm=f34725fac430acece3efaf7b7e4417cc566591783d40ad46e066e08527f32cb5c905482b5901)
+🔥🔥 [我承认，这次买房，我是大冤种！](https://mp.weixin.qq.com/s?__biz=MzIzMDI4MjUwNQ==&mid=2651210140&idx=1&sn=b366cc940cebafccff5a9ca3b6c4178e&chksm=f34725fac430acece3efaf7b7e4417cc566591783d40ad46e066e08527f32cb5c905482b5901)
