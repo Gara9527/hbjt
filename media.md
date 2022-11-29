@@ -1,7 +1,7 @@
 ---
 layout: page
 title: 自媒体
-permalink: /feedback/
+permalink: /media/
 ---
 
 ## 小红书
