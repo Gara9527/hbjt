@@ -84,7 +84,7 @@ permalink: /media/
 
 [#交投华园口头承诺无效公示](https://www.douyin.com/note/7169218203573406979)
 
-[https://www.douyin.com/video/7169216754772626719](https://www.douyin.com/video/7169216754772626719)
+[交投华园虚假销售彻底摆烂](https://www.douyin.com/video/7169216754772626719)
 
 [黑心国企，交投华园#交投华园#湖北交投 湖北国企，交投华园，11000的地价卖12000 低质量交房，损害业主权益](https://www.douyin.com/note/7165123102626696463)
 
