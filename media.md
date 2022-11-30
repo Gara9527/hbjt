@@ -4,19 +4,11 @@ title: 自媒体
 permalink: /media/
 ---
 
-## 小红书
+## 微信公众号
 
-🔥 [一天一个买房避坑小知识](https://www.xiaohongshu.com/discovery/item/637c576a000000000e03b428)
+🔥🔥 [「讲述」人活着，究竟是为了什么？希望我们的下一代，不为房子而活！](https://mp.weixin.qq.com/s?__biz=MzIzMDI4MjUwNQ==&mid=2651210106&idx=1&sn=72d200dececdfe0141fff31ed577646c&chksm=f347251cc430ac0a9dca4c5d00ddf4b8fccb16a489de757674db51937048ad9ccd89ec409edb)
 
-[东湖高新区交投华园隐瞒业主恶意降价！](https://www.xiaohongshu.com/discovery/item/63601487000000000901370e)
-
-[21年高价买的高品质国企房，现在欲哭无泪](https://www.xiaohongshu.com/discovery/item/637b2abe000000000e03bc2d)
-
-## 知乎
-
-[人活着，究竟是为了什么？希望我们的下一代，不为房子而活！](https://zhuanlan.zhihu.com/p/586757099)
-
-[我承认，这次买房，我是大冤种！](https://zhuanlan.zhihu.com/p/587159609)
+🔥🔥 [我承认，这次买房，我是大冤种！](https://mp.weixin.qq.com/s?__biz=MzIzMDI4MjUwNQ==&mid=2651210140&idx=1&sn=b366cc940cebafccff5a9ca3b6c4178e&chksm=f34725fac430acece3efaf7b7e4417cc566591783d40ad46e066e08527f32cb5c905482b5901)
 
 ## 抖音
 
@@ -26,7 +18,7 @@ permalink: /media/
 
 [好房推荐 武汉交投华园](https://www.douyin.com/video/7169203637196016932)
 
-[湖北武汉交投华园业主买房心酸😔](https://www.douyin.com/video/7170570087013862692)
+🔥🔥 [湖北武汉交投华园业主买房心酸😔](https://www.douyin.com/video/7170570087013862692)
 
 [买到渣渣楼，心疼自己](https://www.douyin.com/video/7168427535229832462)
 
@@ -102,14 +94,22 @@ permalink: /media/
 
 [湖北交投华园顶级外墙工艺，国企高品质施工，交房在即，品质第一！](https://www.douyin.com/video/7169819081086913800)
 
+## 小红书
+
+🔥 [一天一个买房避坑小知识](https://www.xiaohongshu.com/discovery/item/637c576a000000000e03b428)
+
+[东湖高新区交投华园隐瞒业主恶意降价！](https://www.xiaohongshu.com/discovery/item/63601487000000000901370e)
+
+[21年高价买的高品质国企房，现在欲哭无泪](https://www.xiaohongshu.com/discovery/item/637b2abe000000000e03bc2d)
+
+## 知乎
+
+[人活着，究竟是为了什么？希望我们的下一代，不为房子而活！](https://zhuanlan.zhihu.com/p/586757099)
+
+[我承认，这次买房，我是大冤种！](https://zhuanlan.zhihu.com/p/587159609)
+
 ## Bilibili
 
 [2022交投华园买房攻略](https://www.bilibili.com/video/BV12W4y1W75e)
 
 [一心想回汉，无奈北上广](https://www.bilibili.com/video/BV1224y1y7ji/)
-
-## 微信公众号
-
-🔥🔥 [「讲述」人活着，究竟是为了什么？希望我们的下一代，不为房子而活！](https://mp.weixin.qq.com/s?__biz=MzIzMDI4MjUwNQ==&mid=2651210106&idx=1&sn=72d200dececdfe0141fff31ed577646c&chksm=f347251cc430ac0a9dca4c5d00ddf4b8fccb16a489de757674db51937048ad9ccd89ec409edb)
-
-🔥🔥 [我承认，这次买房，我是大冤种！](https://mp.weixin.qq.com/s?__biz=MzIzMDI4MjUwNQ==&mid=2651210140&idx=1&sn=b366cc940cebafccff5a9ca3b6c4178e&chksm=f34725fac430acece3efaf7b7e4417cc566591783d40ad46e066e08527f32cb5c905482b5901)
