@@ -16,6 +16,8 @@ permalink: /media/
 
 🆕 [和 @湖北交投产城武汉有限公司 一起 #合拍](https://www.douyin.com/video/7171805613549210911)
 
+🆕 [我有35万招投标，但是我没有钱种好一棵树#湖北交投](https://www.douyin.com/video/7171816012369628423)
+
 🔥🔥🔥 [真给政府丢脸](https://www.douyin.com/video/7168333168884419848)
 
 🔥🔥 [一天一个买房避坑小知识#交投华园 #湖北交投](https://www.douyin.com/video/7168700042038086952)
