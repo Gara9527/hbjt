@@ -6,9 +6,11 @@ permalink: /media/
 
 ## 微信公众号
 
-🔥🔥 [「讲述」人活着，究竟是为了什么？希望我们的下一代，不为房子而活！](https://mp.weixin.qq.com/s?__biz=MzIzMDI4MjUwNQ==&mid=2651210106&idx=1&sn=72d200dececdfe0141fff31ed577646c&chksm=f347251cc430ac0a9dca4c5d00ddf4b8fccb16a489de757674db51937048ad9ccd89ec409edb)
+🔥🔥 [「讲述」人活着，究竟是为了什么？希望我们的下一代，不为房子而活！](https://mp.weixin.qq.com/s/NTG6AFKqBEUreAzHP5VdRw)
 
-🔥🔥 [我承认，这次买房，我是大冤种！](https://mp.weixin.qq.com/s?__biz=MzIzMDI4MjUwNQ==&mid=2651210140&idx=1&sn=b366cc940cebafccff5a9ca3b6c4178e&chksm=f34725fac430acece3efaf7b7e4417cc566591783d40ad46e066e08527f32cb5c905482b5901)
+🔥🔥 [「讲述」我承认，这次买房，我是大冤种！](https://mp.weixin.qq.com/s/wlDOZe9CylkveNFLeEMapQ)
+
+🔥🔥 [「讲述」人生与“房”，故事各有不同！](https://mp.weixin.qq.com/s/hkeXnWcLI0LjNTblo_uHmg)
 
 ## 抖音
 
