@@ -6,9 +6,11 @@ permalink: /media/
 
 ## 微信公众号
 
-🔥🔥 [「讲述」人活着，究竟是为了什么？希望我们的下一代，不为房子而活！](https://mp.weixin.qq.com/s?__biz=MzIzMDI4MjUwNQ==&mid=2651210106&idx=1&sn=72d200dececdfe0141fff31ed577646c&chksm=f347251cc430ac0a9dca4c5d00ddf4b8fccb16a489de757674db51937048ad9ccd89ec409edb)
+🔥🔥 [「讲述」人活着，究竟是为了什么？希望我们的下一代，不为房子而活！](https://mp.weixin.qq.com/s/NTG6AFKqBEUreAzHP5VdRw)
 
-🔥🔥 [我承认，这次买房，我是大冤种！](https://mp.weixin.qq.com/s?__biz=MzIzMDI4MjUwNQ==&mid=2651210140&idx=1&sn=b366cc940cebafccff5a9ca3b6c4178e&chksm=f34725fac430acece3efaf7b7e4417cc566591783d40ad46e066e08527f32cb5c905482b5901)
+🔥🔥 [「讲述」我承认，这次买房，我是大冤种！](https://mp.weixin.qq.com/s/wlDOZe9CylkveNFLeEMapQ)
+
+🔥🔥 [「讲述」人生与“房”，故事各有不同！](https://mp.weixin.qq.com/s/hkeXnWcLI0LjNTblo_uHmg)
 
 ## 抖音
 
@@ -17,6 +19,10 @@ permalink: /media/
 🆕 [和 @湖北交投产城武汉有限公司 一起 #合拍](https://www.douyin.com/video/7171805613549210911)
 
 🆕 [我有35万招投标，但是我没有钱种好一棵树#湖北交投](https://www.douyin.com/video/7171816012369628423)
+
+🆕 [#说不出的心酸 #每个人都有自己的故事 #真实事件 #崩溃就在那么一瞬间](https://www.douyin.com/video/7172183156127272222)
+
+🆕 [你打碎了我的美好！@湖北交投产城武汉有限公司 #坎坷人生路](https://www.douyin.com/note/7172179591694470430)
 
 🔥🔥🔥 [真给政府丢脸](https://www.douyin.com/video/7168333168884419848)
 
