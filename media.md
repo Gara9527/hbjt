@@ -6,7 +6,7 @@ permalink: /media/
 
 ## 微信公众号
 
-🔥🔥🔥 [ 12月家书 | 交投现状，品质堪忧…… ](https://mp.weixin.qq.com/s/XCjRH_0kpXkblfsuraXoTw)
+🔥🔥🔥 [ 12月家书 &#124; 交投现状，品质堪忧…… ](https://mp.weixin.qq.com/s/XCjRH_0kpXkblfsuraXoTw)
 
 🔥🔥🔥 [ 交投华园，一个获得地产界奥斯卡奖的项目](https://mp.weixin.qq.com/s/sL6ZAbFYq_pKhO_w2SyxAQ)
 
