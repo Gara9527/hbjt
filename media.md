@@ -6,7 +6,11 @@ permalink: /media/
 
 ## 微信公众号
 
-🔥🔥 [「讲述」人活着，究竟是为了什么？希望我们的下一代，不为房子而活！](https://mp.weixin.qq.com/s/NTG6AFKqBEUreAzHP5VdRw)
+🔥🔥🔥 [12月家书 | 交投现状，品质堪忧……](https://mp.weixin.qq.com/s/XCjRH_0kpXkblfsuraXoTw)
+
+🔥🔥🔥 [ 交投华园，一个获得地产界奥斯卡奖的项目](https://mp.weixin.qq.com/s/sL6ZAbFYq_pKhO_w2SyxAQ)
+
+🔥🔥 [「讲述」人活着，究竟是为了什么？希望我们的下一代，不为房子而活！](https://mp.weixin.qq.com/s/Im-x5m8K3jSCKN8q2IdJAg)
 
 🔥🔥 [「讲述」我承认，这次买房，我是大冤种！](https://mp.weixin.qq.com/s/wlDOZe9CylkveNFLeEMapQ)
 
