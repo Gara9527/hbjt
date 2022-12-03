@@ -52,9 +52,9 @@ permalink: /feedback/
 
 主任邮箱: [https://wsxf.xinfang.gov.cn/mail/views/success.html?id=98AC744CCFAE11EC9A29AE939A3ABECB](https://wsxf.xinfang.gov.cn/mail/views/success.html?id=98AC744CCFAE11EC9A29AE939A3ABECB)
 
-国资委社会责任处: [027-87232688](027-87232688)
+国资委社会责任处: [027-87232688](tel:027-87232688)
 
-国资委信访专线: [027-87235739](027-87235739)
+国资委信访专线: [027-87235739](tel:027-87235739)
 
 ### 10.中华人民共和国住房和城乡建设部
 
